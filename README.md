@@ -1,4 +1,4 @@
-# VeraDemo - Blab-a-Gag  test twice
+# VeraDemo - Blab-a-Gag  Going to Stuarts Platform
 
 ### Notice
 
