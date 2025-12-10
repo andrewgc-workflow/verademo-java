@@ -1,4 +1,4 @@
-# VeraDemo - Blab-a-Gag  Going to Stuarts Platform
+# VeraDemo - Blab-a-Gag  Going to Stuarts Platform FOR GOOD
 
 ### Notice
 
