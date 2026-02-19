@@ -1,4 +1,4 @@
-# VeraDemo - Blab-a-Gag  Going to Stuarts Platform FOR GOOD
+# VeraDemo - Blab-a-Gag  Going to Stuarts Platform FOR GOOD 2/19/26
 
 ### Notice
 
